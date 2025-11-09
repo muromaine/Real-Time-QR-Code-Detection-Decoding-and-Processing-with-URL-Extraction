@@ -1,1 +1,1 @@
-**The journal is upload, kindly read the journal for results and discussions
+**The journal is uploaded as pdf, kindly read the journal for results and discussions
